@@ -45,8 +45,7 @@ Screenshots and reports from the completed analysis will be uploaded here shortl
 
 If you’d like access to the full project (for academic or collaborative purposes), feel free to contact me.
 
-Email: [your.email@example.com]  
-LinkedIn: [linkedin.com/in/your-profile]  
+Email: [samyak.jain.learn@gmail.com]    
 Project access: Available via request (Google Drive/Dropbox)
 
 ---
